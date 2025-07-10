@@ -31,6 +31,8 @@
 <b>- Ebuhosu
 <p align="center">
 <b>- Persona
+  <p align="center">
+    <b> -Umamusume</b>
 <p align="center">
 <b> <img src="https://files.catbox.moe/1ewu3i.gif">
   <img src="https://files.catbox.moe/69q993.gif" width="100%" height="40px" />
