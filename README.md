@@ -14,6 +14,9 @@
 <p align="center">
 <b> some things about me (♬ ᵔ ᵔ) im 18 and transfem, i love decorating my island!! u can come with me there if u want, i love social interactions so please talk w me!, i have a little problem with men but i try my best to act kind with them too, i have a girlfriend who i love very much andddd if u wanna know more talk w me hihi btw sign my ata too!! https://fuyuchan.atabook.org
 <p align="center">
+
+  <p align='center>
+<b> IF U CAME TO HELP ME WITH MY FINAL PAPER THANK U SO MUCH please respond this forms! https://forms.gle/dYaweeTRuLHK6Gbx7
   <img src="https://files.catbox.moe/69q993.gif" width="100%" height="40px" />
 </p>
 <p align="center">
