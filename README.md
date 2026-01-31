@@ -12,7 +12,7 @@
 <span style="color:#92CADA;">e</span><br>  
 <b>Jirai-kei girl who spends all day on the internet <img src=https://files.catbox.moe/ysr4tm.gif>
 <p align="center">
-<b> some things about me (♬ ᵔ ᵔ) im 18 and transfem, i love decorating my island!! u can come with me there if u want, i love social interactions so please talk w me!, i have a little problem with men but i try my best to act kind with them too, i have a girlfriend who i love very much andddd if u wanna know more talk w me hihi btw sign my ata too!! https://fuyuchan.atabook.org
+<b> some things about me (♬ ᵔ ᵔ) im 18 and transfem, i love decorating my island!! u can come with me there if u want, i love social interactions so please talk w me!, i have a little problem with men but i try my best to act kind with them too andddd if u wanna know more talk w me hihi btw sign my ata too!! https://fuyuchan.atabook.org
 <p align="center">
 <p align="center">
 
