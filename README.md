@@ -16,7 +16,7 @@
 <p align="center">
 <p align="center">
 
-<p align="center"> Friends corner: Ange ❤︎⁠ Lice ❤︎⁠ Lou ❤︎⁠ Nagi ❤︎⁠ Pedro ❤︎⁠ Abyss ❤︎⁠ Nene ❤︎⁠ Alex ❤︎⁠ Levi ❤︎⁠ Mami ❤︎⁠ Leo ❤︎⁠ Ther ❤︎⁠ Mary ❤︎⁠ Ana 
+<p align="center"> Ange ❤︎⁠ Lice ❤︎⁠ Lou ❤︎⁠ Nagi ❤︎⁠ Pedro ❤︎⁠ Abyss ❤︎⁠ Nene ❤︎⁠ Alex ❤︎⁠ Levi ❤︎⁠ Mami ❤︎⁠ Leo ❤︎⁠ Ther ❤︎⁠ Mary ❤︎⁠ Ana 
 
   <img src="https://files.catbox.moe/69q993.gif" width="100%" height="40px" />
 </p>
