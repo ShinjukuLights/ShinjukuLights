@@ -10,12 +10,13 @@
 <span style="color:#92CADA;">i</span>
 <span style="color:#92CADA;">c</span>
 <span style="color:#92CADA;">e</span><br>  
-<b>Jirai-kei girl who spends all day on the internet <img src=https://files.catbox.moe/ysr4tm.gif>
+<b> sukeban girl who spends all day on the internet <img src=https://files.catbox.moe/ysr4tm.gif>
 <p align="center">
-<b> some things about me (♬ ᵔ ᵔ) im 18 and transfem, i love decorating my island!! u can come with me there if u want, i love social interactions so please talk w me!, i have a little problem with men but i try my best to act kind with them too andddd if u wanna know more talk w me hihi btw sign my ata too!! https://fuyuchan.atabook.org
+<b> some things about me (♬ ᵔ ᵔ) im 19 and transfem! i'm somewhat scared about social interactions but please talk w me! i have a little problem with men but i try my best to act kind with them too andddd if u wanna know more talk w me btw sign my ata too!! https://fuyuchan.atabook.org
 <p align="center">
 <p align="center">
 
+<p align="center"> Friends corner: Ange ❤︎⁠ Lice ❤︎⁠ Lou ❤︎⁠ Nagi ❤︎⁠ Pedro ❤︎⁠ Abyss ❤︎⁠ Nene ❤︎⁠ Alex ❤︎⁠ Levi ❤︎⁠ Mami ❤︎⁠ Leo ❤︎⁠ Ther ❤︎⁠ Mary ❤︎⁠ Ana 
 
   <img src="https://files.catbox.moe/69q993.gif" width="100%" height="40px" />
 </p>
